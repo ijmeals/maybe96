@@ -20,6 +20,20 @@ of course, of course
 
 you think you created this
 
+eventually something came from
+
+well, nothing, right
+
+that nothing could be view as something
+
+possibly god; so is there a god
+
+and a solution to how something comes from nothing
+
+when in reality it was something which came from something
+
+_see how useless this theoretical stuff is, at the very least arguably impractical_
+
 <!-- those hard
 
 those hot
