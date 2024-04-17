@@ -20,7 +20,7 @@ of course, of course
 
 you think you created this
 
-those hard
+<!-- those hard
 
 those hot
 
@@ -28,4 +28,12 @@ hot hot bars
 
 it's either me or
 
-some superstar
+some superstar -->
+
+### what if, tho
+
+the question with god is often tied or associated to the idea that life goes on, that something of you transcends this.
+
+if that is thy concern, this sphere, plane, universe seems well designed so we are firmly in the belief this here could be luck or
+
+something more beautiful at work.
