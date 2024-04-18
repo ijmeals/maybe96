@@ -11,7 +11,7 @@ one language is no better universally than any other, some are however
 
 better for certain jobs or task than others though you cannot have this world
 
-without the other languages even if you personally only prefer to work or use or apply
+without the other languages even if you personally only prefer to work, use or apply
 
 a certain one
 
@@ -28,8 +28,10 @@ table of contents
 
 - god
 
-- seven tenants
+- the tenants
 
 - golden something
 
+- [the divine feminine](./the-divine-feminine.md)
 
+- [the press conference](./the-press-conference.md)
