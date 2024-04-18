@@ -1,4 +1,4 @@
-# seven tenants
+# the tenants
 
 (0) humility (self realization before all else in thinking; then, requires faith)
 
@@ -18,5 +18,5 @@
 
 (h) practical
 
-off by one tho if it's only by one you should be alright, assuming the first position is 0 and not 1.
+(10) consistency in following tenants
 
