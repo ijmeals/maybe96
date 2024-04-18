@@ -26,11 +26,9 @@ while i'm still at it like dre
 
 or jake paul
 
-it's every day
+in that it's every day
 
-so bro
-
-you don't want no smoke
+so bro you don't want no smoke
 
 and i'm telling you Father
 
