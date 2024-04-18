@@ -30,25 +30,27 @@ it's every day
 
 so bro
 
-you don't want
+you don't want no smoke
 
-no smoke
-
-i'm telling you Father
+and i'm telling you Father
 
 if need be
 
 Her bombs they go further
 
-and hit harder
+hit harder
 
 that is for god damn sure
 
 ask anyone
 
-camren, sean carter
+camren
+
+sean carter
 
 or whoever
 
-hell ask barbara walters
+hell
+
+ask barbara walters!
 
