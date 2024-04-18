@@ -24,9 +24,7 @@ now hardly plays any longer
 
 while i'm still at it like dre
 
-or jake paul
-
-in that it's every day
+or jake paul in that it's every day
 
 so bro you don't want no smoke
 
