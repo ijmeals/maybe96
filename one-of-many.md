@@ -28,7 +28,9 @@ _wel_ praising
 
 he thinks you are
 
-well rather amazing
+well
+
+rather amazing
 
 tho he is not sure if this is real life
 
