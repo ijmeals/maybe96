@@ -2,7 +2,7 @@
 
 _some things may require more effort to attain_
 
-table of contents
+it was written
 
 - god
 
