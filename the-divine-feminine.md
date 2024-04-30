@@ -1,4 +1,4 @@
-# divine feminie
+# the divine feminie
 
 she says get your kicks 
 
@@ -42,7 +42,9 @@ you don't want no smoke
 
 i'm telling you Father
 
-if need be Her bombs they go further
+if need be
+
+Her bombs they go further
 
 and hit harder
 
@@ -50,6 +52,6 @@ that is for god damn sure
 
 ask anyone
 
-you can ask your father
+ask your father
 
-or even a mr. sean carter
+or a mr. sean carter
