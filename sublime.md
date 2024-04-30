@@ -36,7 +36,7 @@ semi-okay
 
 at least for today
 
-it hasn't been to wild
+it hasn't been wild
 
 feelin a bit like jay
 
