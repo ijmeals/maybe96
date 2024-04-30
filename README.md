@@ -18,7 +18,7 @@ it was written
 
 - [tried fexting](./tried-fexting.md)
 
-- [a slippery slope](./drugs-and-candy.md)
+- [a slippery slope](./on-the-slopes.md)
 
 - [to feel sublime](./sublime.md)
 

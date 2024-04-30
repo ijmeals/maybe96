@@ -4,9 +4,9 @@ started smoking a little
 
 then i was smoking a lot
 
-thank god it's was not crack
+thank god it was not crack
 
-i'm talking pot
+it was only the pot
 
 tho sometimes it's ok
 
