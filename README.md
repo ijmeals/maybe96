@@ -1,28 +1,6 @@
-# maybe96
+# maybe 96
 
-why no practical guide to creating your own framework 
-
-instead of always having to rely on someone else's thinking
-
-and preferences
-
-
-one language is no better universally than any other, some are however
-
-better for certain jobs or task than others though you cannot have this world
-
-without the other languages even if you personally only prefer to work, use or apply
-
-a certain one
-
-
-the most dangerous type of engineer, preacher, or any homosapien is the person who thinks
-
-they know, there way is the best and if at the very least admits their way may not be correct yet
-
-insist their thinking should lead the pack; hence, humility. 
-
---
+_some things may require more effort to attain_
 
 table of contents
 
@@ -32,6 +10,34 @@ table of contents
 
 - golden something
 
-- [the divine feminine](./the-divine-feminine.md)
+- [divine feminine](./the-divine-feminine.md)
 
-- [the press conference](./the-press-conference.md)
+- [press conference](./the-press-conference.md)
+
+- [the convo](./faces.md)
+
+- [tried fexting](./cops.md)
+
+- [a slippery slope](./drugs-and-candy.md)
+
+- [to feel sublime](./sublime.md)
+
+- [thanks rabbit](./rabbit.md)
+
+- heaven
+
+- rrq
+
+- love
+
+- [one of many](./one-of-many.md)
+
+- [so it goes](./so-it-goes.md)
+
+audios
+
+- critically acclaimed shamwow
+
+- a little bit of everything all rolled into one
+
+- philosophical question about trees

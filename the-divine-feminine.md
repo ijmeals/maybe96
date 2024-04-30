@@ -1,8 +1,18 @@
-# the divine feminie
+# divine feminie
 
-i see a greater call
+she says get your kicks 
 
-in a different kind of fall
+as they come
+
+realizing you're just a dick
+
+like some
+
+and by that i mean all
+
+plus i see a greater call
+
+with a different kind of fall
 
 a belief in alice
 
@@ -24,29 +34,20 @@ now hardly plays any longer
 
 while i'm still at it like dre
 
-or jake paul in that it's every day
+or jake paul it's every day, so bro
 
-so bro you don't want no smoke
+you don't want no smoke
 
-and i'm telling you Father
+i'm telling you Father
 
-if need be
+if need be Her bombs they go further
 
-Her bombs they go further
-
-hit harder
+and hit harder
 
 that is for god damn sure
 
+<!-- you can bet -->
+
 ask anyone
 
-camren
-
-sean carter
-
-or whoever
-
-hell
-
-ask barbara walters!
-
+heck ask barbara
