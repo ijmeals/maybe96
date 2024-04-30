@@ -6,7 +6,7 @@ then i was smoking a lot
 
 thank god it was not crack
 
-it was only the pot
+it was the pot
 
 tho sometimes it's ok
 
