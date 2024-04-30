@@ -40,6 +40,8 @@ that is something i would never do
 
 ask alice; it's true
 
+she will say
+
 nuggs does behaves better now
 
-_rabbit thank you_
+_rabbit we thank you_
