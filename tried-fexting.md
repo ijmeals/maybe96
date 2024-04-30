@@ -8,7 +8,7 @@ wishing he drove
 
 then i'd be on the road
 
-leaving thy inbox alone
+leaving inboxes alone
 
 instead of chilling at home
 
