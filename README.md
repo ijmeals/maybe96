@@ -38,6 +38,6 @@ audios
 
 - critically acclaimed shamwow
 
-- a little bit of everything all rolled into one
+- little bit of everything all rolled into one
 
 - philosophical question about trees

@@ -34,7 +34,9 @@ now hardly plays any longer
 
 while i'm still at it like dre
 
-or jake paul it's every day, so bro
+or jake paul it's every day
+
+so bro
 
 you don't want no smoke
 
@@ -50,4 +52,4 @@ that is for god damn sure
 
 ask anyone
 
-heck ask barbara
+you can even ask barbara
