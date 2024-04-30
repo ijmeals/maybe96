@@ -48,8 +48,8 @@ and hit harder
 
 that is for god damn sure
 
-<!-- you can bet -->
-
 ask anyone
 
-you can even ask your father
+you can ask your father
+
+or even a mr. sean carter
