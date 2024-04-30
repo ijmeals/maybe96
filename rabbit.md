@@ -42,6 +42,6 @@ ask alice; it's true
 
 she will say
 
-nuggs does behaves better now
+nuggs behaves better now
 
-_rabbit we thank you_
+_rabbit does thank you_
