@@ -1,3 +1,3 @@
 # heaven
 
-i am assuming it's how thyself is behavior presently; else why behave that way
+i am assuming it's how thyself is behaving presently; otherwise, why behave that way?
