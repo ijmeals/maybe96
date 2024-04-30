@@ -10,7 +10,7 @@ _some things may require more effort to attain_
 
 - golden something
 
-- [divine feminine](./the-divine-feminine.md)
+- [the divine feminine](./the-divine-feminine.md)
 
 - [press conference](./the-press-conference.md)
 
