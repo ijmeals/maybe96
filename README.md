@@ -2,7 +2,7 @@
 
 _some things may require more effort to attain_
 
-it was written
+## it was written
 
 - god
 
@@ -34,7 +34,7 @@ it was written
 
 - [so it goes](./so-it-goes.md)
 
-audios
+### audios
 
 - critically acclaimed shamwow
 
