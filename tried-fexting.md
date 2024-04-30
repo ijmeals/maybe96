@@ -4,11 +4,11 @@ sent emails in drove
 
 had some thinking
 
-wishing i drove
+wishing he drove
 
-thought then he'd be on the road
+then i'd be on the road
 
-leaving my inbox alone
+leaving thy inbox alone
 
 instead of chilling at home
 

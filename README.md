@@ -16,7 +16,7 @@ it was written
 
 - [the convo](./faces.md)
 
-- [tried fexting](./cops.md)
+- [tried fexting](./tried-fexting.md)
 
 - [a slippery slope](./drugs-and-candy.md)
 
