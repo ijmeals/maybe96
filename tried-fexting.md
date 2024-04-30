@@ -4,9 +4,9 @@ sent emails in drove
 
 had some thinking
 
-wishing he drove
+wishing nuggs drove
 
-then i'd be on the road
+then he'd be on the road
 
 leaving inboxes alone
 
@@ -14,7 +14,7 @@ instead of chilling at home
 
 audio after audio
 
-recordings on the phone
+recording from his phone
 
 some wondering
 
