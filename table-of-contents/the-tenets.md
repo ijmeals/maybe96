@@ -1,4 +1,4 @@
-# the tenants
+# the tenets
 
 (0) humility (self realization before all else in thinking; then, requires faith)
 
@@ -18,8 +18,10 @@
 
 (h) practical
 
-(10) consistency in following tenants
+(10) consistency in following tenets
 
 all standalone things, i think
 
-accountability comes from a and b at the very least
+from there other things can be derived or built upon
+
+like accountability comes from a and b at the very least
