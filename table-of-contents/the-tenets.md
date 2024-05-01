@@ -25,3 +25,5 @@ all standalone things, i think
 from there other things can be derived or built upon
 
 like accountability comes from a and b at the very least
+
+_would it be more appealing if i titled it ten ants and used ants instead for the bullet point symbol_

@@ -6,7 +6,7 @@ _some things may require more effort to attain_
 
 - god
 
-- the tenants
+- the tenets
 
 - golden something
 
