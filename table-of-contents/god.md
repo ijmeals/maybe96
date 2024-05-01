@@ -40,4 +40,6 @@ the question with god is often tied or associated to the idea that life goes on,
 
 if that is thy concern, this sphere, plane, universe seems well designed so we are firmly in the belief this here could be luck or
 
-something more beautiful at work.
+something more beautiful at play.
+
+_one could say "something more beautiful at work" though it all depends on how you view life and your definition of the word work_
