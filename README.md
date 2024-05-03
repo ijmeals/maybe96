@@ -24,8 +24,8 @@ _some things may require more effort to attain_
 
 - brushing your teeth
 
-- course correct, maybe
+- course correct
 
-- curtsy and the bow, maybe
+- curtsy and the bow
 
 <!-- - it's the sway -->
