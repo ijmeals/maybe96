@@ -32,7 +32,9 @@ you're lucky she's engaged
 
 now hardly plays any longer
 
-while i'm still at it like dre
+while i'm still at it
+
+like dre
 
 or jake paul it's every day
 
