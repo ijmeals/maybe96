@@ -30,7 +30,9 @@ and you think that is cool
 
 i am changing sides on you
 
-after being
+after
+
+being
 
 wel
 

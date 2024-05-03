@@ -26,4 +26,4 @@ it's time to hit the slopes
 
 do it too much
 
-and you can end up broke
+and you can end up being broke
