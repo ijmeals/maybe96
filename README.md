@@ -10,19 +10,19 @@ _some things may require more effort to attain_
 
 - golden something
 
-- [divine feminine](./the-divine-feminine.md)
+- [divine feminine](./pieces/the-divine-feminine.md)
 
-- [press conference](./the-press-conference.md)
+- [press conference](./pieces/the-press-conference.md)
 
-- [the convo](./faces.md)
+- [the convo](./pieces/the-convo.md)
 
-- [tried fexting](./tried-fexting.md)
+- [tried fexting](./pieces/tried-fexting.md)
 
-- [a slippery slope](./a-slippery-slope.md)
+- [a slippery slope](./pieces/a-slippery-slope.md)
 
-- [to feel sublime](./sublime.md)
+- [to feel sublime](./pieces/sublime.md)
 
-- [thanks rabbit](./rabbit.md)
+- [thanks rabbit](./pieces/rabbit.md)
 
 - heaven
 
@@ -30,9 +30,9 @@ _some things may require more effort to attain_
 
 - love
 
-- [one of many](./one-of-many.md)
+- [one of many](./pieces/one-of-many.md)
 
-- [so it goes](./so-it-goes.md)
+- [so it goes](./pieces/so-it-goes.md)
 
 ### audios
 
