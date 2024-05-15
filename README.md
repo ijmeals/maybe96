@@ -8,25 +8,25 @@ _some things may require more effort to attain_
 
 ## table of contents
 
-- first verse
+- [first verse](./pieces/first-verse.md)
 
-- who am i
+- [who am i](./pieces/first-verse.md)
 
-- alright
+- [alright](./pieces/alright.md)
 
-- ten commandments
+- [ten commandments](./pieces/ten-commandments.md)
 
 - faith
 
-- the question(s)
+- [the question(s)](./pieces/the-questions.md)
 
-- missed calls 
+- [missed calls](./pieces/missed-calls.md)
 
-- the-dream-weaver
+- [the-dream-weaver](./pieces/the-dream-weaver.md)
 
-- all apologies
+- [all apologies](./pieces/all-apologies.md)
 
-- grand finale
+- [grand finale](./pieces/grand-finale.md)
 
 <!-- - the little things -->
 <!-- the ego is the egg, an inflated ego is the chicken
@@ -38,4 +38,5 @@ visual model of what is an ego -->
 
 and or maybe thoughts or just a thought exercise
 
-- smoking may kill
+- [smoking may kill](./possibly-essays/smoking-may-kill.md)
+

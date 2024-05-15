@@ -1,4 +1,4 @@
-# the grand finale
+# a grand finale
 
 the creator of scenes
 
