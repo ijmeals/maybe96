@@ -18,9 +18,11 @@ i am not
 
 ask me what i'm doing
 
-answer is
+the answer would be
 
-discovering what i am not
+discovering
+
+what i am as well as what i am not
 
 trying to determine
 
@@ -28,4 +30,4 @@ if this is something
 
 or nothing 
 
-that of which i got
+that of which i seem to got

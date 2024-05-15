@@ -15,3 +15,7 @@ And look for ways to help
 Both yourself
 
 As well as herself.
+
+_and only then_
+
+_themselves_

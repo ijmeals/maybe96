@@ -10,10 +10,12 @@ _my_ uncle kracker
 
 in any sense
 
-even if you were that wouldn't make a difference
+and even if you were
+
+that wouldn't make a difference
 
 that said
 
-i love the song
+i like the song
 
 <!-- good song tho -->

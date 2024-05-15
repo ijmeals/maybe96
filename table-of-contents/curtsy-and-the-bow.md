@@ -6,7 +6,7 @@ to know
 
 i am not shady
 
-not like em
+not like 'em
 
 a little crazy
 

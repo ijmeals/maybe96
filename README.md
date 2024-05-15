@@ -14,7 +14,7 @@ _some things may require more effort to attain_
 
 - follow me
 
-- you should tell
+- [you should tell](./pieces/you-should-tell.md)
 
 - what is love
 
