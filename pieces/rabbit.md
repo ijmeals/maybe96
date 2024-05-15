@@ -46,4 +46,4 @@ she will say
 
 nuggs behaves better now
 
-_rabbit does thank you_
+_rabbit thank you_
